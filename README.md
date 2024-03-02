@@ -1,1 +1,1 @@
-https://1kibernetik1.github.io/KibernetiK.github.io/
+https://1kibernetik1.github.io/Site-card/
